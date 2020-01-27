@@ -1,0 +1,2 @@
+# kuyanangkub
+Aku 
